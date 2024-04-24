@@ -14,5 +14,9 @@ The permanence of public records and the unique naming of mass shootings and ter
 
 Moreover, the cultural context, particularly in the United States where gun ownership is deeply rooted in national identity and protected by the Second Amendment, adds another layer to the discourse on mass shootings. This cultural aspect emphasizes regional and demographic variations in attitudes towards gun ownership and its implications for public safety. The ongoing debates around gun regulations and public safety in the US reflect a deeply entrenched and contentious part of American identity, influencing both the frequency of mass shootings and the national dialogue surrounding them.
 
+#
+
+![Hitler Playing Games](https://github.com/sourceduty/Terrorism/assets/123030236/d825a127-14a7-4a20-a19f-1be3efc6d605)
+
 ***
 🛈 This information is free and open-source; anyone can redistribute it and/or modify.
