@@ -71,8 +71,6 @@ Weapons that combine precision and power, like railguns and laser cannons, sit n
 <br>
 [Donald Trump Shooting](https://github.com/sourceduty/Donald_Trump_Shooting)
 <br>
-[Terrorism](https://github.com/sourceduty/Terrorism)
-<br>
 [Wikipedia](https://github.com/sourceduty/Wikipedia)
 <br>
 [Drugs](https://github.com/sourceduty/Drugs)
