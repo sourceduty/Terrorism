@@ -48,6 +48,8 @@ Similarly, the theory of controlled demolitions suggests that explosives were pl
 #
 ### The Simpsons
 
+![I WANT YOU BANNER](https://github.com/user-attachments/assets/18b59e2c-237b-4284-a277-04911a71f608)
+
 The New York $9 poster image seems to play off both The Simpsons' satirical style and possible references to New York City and the tragic 9/11 event, considering the Twin Towers' depiction. The "$9" could be interpreted as a sensitive or controversial element given the context. The inclusion of Homer Simpson, a popular cartoon character, might be intended to juxtapose humor with a serious theme, though the meaning could vary depending on interpretation.
 
 #
