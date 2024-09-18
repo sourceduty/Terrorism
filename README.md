@@ -46,6 +46,11 @@ The possibility of remote-controlled aircraft and controlled building demolition
 Similarly, the theory of controlled demolitions suggests that explosives were planted in the World Trade Center buildings and that the collapse was not solely caused by the impact of the planes and subsequent fires. Proponents of this theory point to the symmetrical nature of the collapse and the way the buildings fell as potential evidence of a controlled demolition. However, extensive investigations, including those by the National Institute of Standards and Technology (NIST), have concluded that the buildings collapsed due to structural failure from the impacts and fires, not explosives. The fires weakened the steel frameworks of the towers, causing them to buckle and eventually collapse. Despite the persistence of these theories, mainstream experts and investigations have consistently rejected them as lacking scientific and factual basis.
 
 #
+### The Simpsons
+
+The New York $9 poster image seems to play off both The Simpsons' satirical style and possible references to New York City and the tragic 9/11 event, considering the Twin Towers' depiction. The "$9" could be interpreted as a sensitive or controversial element given the context. The inclusion of Homer Simpson, a popular cartoon character, might be intended to juxtapose humor with a serious theme, though the meaning could vary depending on interpretation.
+
+#
 ### 9/11 Memes
 
 ![911](https://github.com/sourceduty/Terrorism/assets/123030236/ddef0ec1-d19f-4209-94b4-96fd0fd7e6a9)
@@ -62,11 +67,6 @@ Moreover, these memes contribute to a culture of insensitivity, normalizing the 
 This kind of content, which blends historical figures known for their atrocities with contemporary and mundane activities like playing video games, raises ethical concerns. On one hand, memes often trivialize or normalize highly sensitive subjects, which can desensitize people to the gravity of historical events, such as the Holocaust and the extreme suffering caused by figures like Hitler. By placing such a figure in a casual, humorous context, the meme risks diminishing the memory of the horrors associated with his regime. This can be particularly distressing for survivors, descendants of victims, and communities affected by the consequences of World War II.
 
 From a moral standpoint, the meme walks a fine line between satire and inappropriate humor. Some may argue that satirizing figures like Hitler undermines their historical power and could serve as a form of social commentary or cultural critique. However, others would contend that such memes serve little purpose beyond shock value and could contribute to a culture of insensitivity, particularly when shared in a context that lacks educational or critical reflection. The ethics of using such imagery depends largely on the context in which it is presented, the audience's understanding of history, and the intent behind sharing the meme. Overall, while memes can be powerful forms of expression, they can also perpetuate harmful ideas if not handled responsibly.
-
-#
-### The Simpsons
-
-The New York $9 poster image seems to play off both The Simpsons' satirical style and possible references to New York City and the tragic 9/11 event, considering the Twin Towers' depiction. The "$9" could be interpreted as a sensitive or controversial element given the context. The inclusion of Homer Simpson, a popular cartoon character, might be intended to juxtapose humor with a serious theme, though the meaning could vary depending on interpretation.
 
 #
 
