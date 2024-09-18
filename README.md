@@ -13,6 +13,8 @@ Moreover, the cultural context, particularly in the United States where gun owne
 #
 ### NYC & WTC 9/11 in 2001
 
+![911](https://github.com/user-attachments/assets/96ed0316-ad63-42c4-81a3-4185b316ca9d)
+
 On September 11, 2001, a series of coordinated terrorist attacks targeted the United States, with the most devastating happening in New York City. Nineteen terrorists associated with the extremist group al-Qaeda hijacked four commercial airplanes. Two of these planes, American Airlines Flight 11 and United Airlines Flight 175, were deliberately crashed into the North and South Towers of the World Trade Center. The impact and ensuing fires caused both towers to collapse, leading to the death of nearly 3,000 people, including passengers, workers in the towers, first responders, and innocent bystanders.
 
 The collapse of the Twin Towers caused widespread destruction and panic in lower Manhattan. Many surrounding buildings were severely damaged or destroyed by the debris and fires that followed the attacks. Rescue efforts began immediately, but the scale of the destruction overwhelmed responders. For weeks, the site, which became known as Ground Zero, was filled with workers searching for survivors and recovering bodies amidst the rubble. The event left a lasting scar on New York City, changing its skyline forever and leaving behind deep emotional trauma for survivors and families of the victims.
