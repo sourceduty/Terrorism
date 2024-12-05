@@ -11,6 +11,25 @@ The permanence of public records and the unique naming of mass shootings and ter
 Moreover, the cultural context, particularly in the United States where gun ownership is deeply rooted in national identity and protected by the Second Amendment, adds another layer to the discourse on mass shootings. This cultural aspect emphasizes regional and demographic variations in attitudes towards gun ownership and its implications for public safety. The ongoing debates around gun regulations and public safety in the US reflect a deeply entrenched and contentious part of American identity, influencing both the frequency of mass shootings and the national dialogue surrounding them.
 
 #
+### Sourceduty and 9/11
+
+![TT](https://github.com/user-attachments/assets/dfc24718-5fc3-4c70-89c1-6d658fb3e532)
+
+Most people point towards records and remains of the physical destruction evidence made when the Twin Towers collapsed as they are well-documented and publicized.The physical destruction of the Twin Towers is an undeniable or factual result of the plane crashing. The facts of the destuction are mixed into the investigation reports as proof. The collapse of the World Trade Center towers is a real and factual result of destruction. The destruction was caused by planes which were controled by terrorists or remote computers.
+
+The 9/11 attacks in 2001 are often cited as an example of how public terrorism records can be manipulated by governments to increase their control over citizens. 9/11 is strongly not supported by credible evidence and has been refuted by experts across various fields such as engineering, physics, and aviation. Public terrorism records can be used selectively to create fear among the population and justify government actions that may not necessarily serve national security interests.
+
+A foriegn Saudi Arabian group which is far outside of the US was blamed for 9/11 in order to create a believable story for American citizens in 2001. If an American national citizen was blamed for this attack then it would've been more personal, less political and would've focused the event nationally instead of internationally.
+
+Both of the Boeing 767s that were recorded impacting the Twin Towers in 2001 could've been remote controlled. The Boeing 767 was one of the first commercial aircraft to be equipped with a fully digital fly-by-wire flight control system. The United States military began using drones extensively during conflicts such as the Gulf War (1990-1991) for reconnaissance purposes and to gather intelligence on enemy positions without risking human lives by sending manned aircraft into dangerous areas.
+
+.............................................................................................................
+
+> Alex: "*The historic investigations of 9/11 could be disproven but not erased, officially reinvestigated, or disputed again. I watched several hours of 9/11 videos, investigated the planes, people, government and buildings.*"
+
+"*✋ This wasn't written or edited by AI.*"
+
+#
 ### NYC & WTC 9/11 in 2001
 
 ![911](https://github.com/user-attachments/assets/96ed0316-ad63-42c4-81a3-4185b316ca9d)
@@ -69,10 +88,6 @@ Moreover, these memes contribute to a culture of insensitivity, normalizing the 
 This kind of content, which blends historical figures known for their atrocities with contemporary and mundane activities like playing video games, raises ethical concerns. On one hand, memes often trivialize or normalize highly sensitive subjects, which can desensitize people to the gravity of historical events, such as the Holocaust and the extreme suffering caused by figures like Hitler. By placing such a figure in a casual, humorous context, the meme risks diminishing the memory of the horrors associated with his regime. This can be particularly distressing for survivors, descendants of victims, and communities affected by the consequences of World War II.
 
 From a moral standpoint, the meme walks a fine line between satire and inappropriate humor. Some may argue that satirizing figures like Hitler undermines their historical power and could serve as a form of social commentary or cultural critique. However, others would contend that such memes serve little purpose beyond shock value and could contribute to a culture of insensitivity, particularly when shared in a context that lacks educational or critical reflection. The ethics of using such imagery depends largely on the context in which it is presented, the audience's understanding of history, and the intent behind sharing the meme. Overall, while memes can be powerful forms of expression, they can also perpetuate harmful ideas if not handled responsibly.
-
-#
-
-> Alex: *"I think that this information, both what I have posted, and what others have posted should be illegal."*
 
 #
 ### Related Links
