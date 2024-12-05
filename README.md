@@ -81,7 +81,7 @@ Similarly, the theory of controlled demolitions suggests that explosives were pl
 
 The collapse of World Trade Center Building 7 (WTC 7) on September 11, 2001, wa caused by a combination of fire damage and structural failures caused by debris from the North Tower’s collapse. Falling debris ignited fires on multiple floors of WTC 7, which burned uncontrollably for hours due to a lack of water supply for the sprinkler system. These fires caused thermal expansion of steel beams supporting the building's internal structure, leading to the failure of a critical column (Column 79) and initiating a progressive collapse of the entire building. While this explanation has been widely accepted by engineers and scientists, it has also sparked controversy and skepticism, with critics arguing that the collapse resembled a controlled demolition and questioning the extent to which debris and fire alone could lead to such a rapid and symmetrical failure.
 
-"*None of the buildings were demolished with explosives.*"
+> "*None of the buildings were demolished with explosives.*"
 
 #
 ### The Simpsons
