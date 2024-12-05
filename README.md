@@ -83,6 +83,8 @@ The collapse of World Trade Center Building 7 (WTC 7) on September 11, 2001, wa 
 
 > "*None of the buildings were demolished with explosives.*"
 
+> "*The north tower hit Building 7.*"
+
 #
 ### The Simpsons
 
