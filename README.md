@@ -75,7 +75,6 @@ The possibility of remote-controlled aircraft and controlled building demolition
 
 Similarly, the theory of controlled demolitions suggests that explosives were planted in the World Trade Center buildings and that the collapse was not solely caused by the impact of the planes and subsequent fires. Proponents of this theory point to the symmetrical nature of the collapse and the way the buildings fell as potential evidence of a controlled demolition. However, extensive investigations, including those by the National Institute of Standards and Technology (NIST), have concluded that the buildings collapsed due to structural failure from the impacts and fires, not explosives. The fires weakened the steel frameworks of the towers, causing them to buckle and eventually collapse. Despite the persistence of these theories, mainstream experts and investigations have consistently rejected them as lacking scientific and factual basis.
 
-#
 ### Building 7
 
 ![WTC-7](https://github.com/user-attachments/assets/0a92229c-c37a-430d-8fc3-f26b5126b841)
