@@ -27,7 +27,7 @@ Both of the Boeing 767s that were recorded impacting the Twin Towers in 2001 cou
 
 > Alex: "*The historic investigations of 9/11 could be disproven but not erased, officially reinvestigated, or disputed again. I watched several hours of 9/11 videos, investigated the planes, people, government and buildings.*"
 
-"*✋ This wasn't written or edited by AI.*"
+> "*✋ This wasn't written or edited by AI.*"
 
 #
 ### NYC & WTC 9/11 in 2001
